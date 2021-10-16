@@ -1,0 +1,3 @@
+## New beginnings
+
+Worked out today like I never did in the past 8 months. But I was still a teeny tiny bit easy on myself. I'm happy that I didn't lose the endurance that I had built back when we were practicing for entire days almost for about 3months. Those days were extremely exhausting but were worth the effort anyways. Happy to have that adrenaline rush back. Today there's nothing much to write about, just the fact that I worked out. I'm excited for the days to come. I'm sure I'll get into a state where I'll not want to workout at all. But I'll try to keep going. Let's see how far I can go with this excitement. 
